@@ -13,4 +13,4 @@
 **Sharing**  
 • We do not sell or share any data with third parties.
 
-If you have questions, contact: [you@yourdomain.com](https://www.linkedin.com/in/adam-karpovich-26038a206/)
+If you have questions, contact: [Adam Karpovich](https://www.linkedin.com/in/adam-karpovich-26038a206/)
